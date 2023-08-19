@@ -2,7 +2,8 @@
 
 (+86) 15216679198  
 (+852)98159326  
-u3598307@connect.hku.hk
+u3598307@connect.hku.hk  
+<img src="/IMG_3790.JPG">  
 
 ### Education
 University of Hongkong	
