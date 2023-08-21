@@ -1,5 +1,5 @@
 ## Zhang Yifan (张一凡)
-<img src="IMG_3790.JPG" width=30% />  
+![](IMG_3790.JPG)
 (+86) 15216679198  
 (+852)98159326  
 u3598307@connect.hku.hk  
