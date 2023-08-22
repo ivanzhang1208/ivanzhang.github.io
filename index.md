@@ -6,7 +6,7 @@ u3598307@connect.hku.hk
 
 
 ### Education
-The University of Hong Kong	
+The University of Hong Kong  	
 September 2022-December 2023  
 MSc in Information Technology Education
 
